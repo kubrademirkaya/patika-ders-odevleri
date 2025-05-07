@@ -1,0 +1,1 @@
+# patika-ders-odevleri
